@@ -4,7 +4,7 @@
 
 ## DO NOT USE / SELL / REDISTRIBUTE 
 
-Do not use / sell /redistribute our software before consulting us first.
+Do not use / sell /redistribute!!!!!
 
 This is made for educational purposes only!
 
